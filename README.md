@@ -1,0 +1,1 @@
+# week-6-_-mechanical_-task-1
